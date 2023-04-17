@@ -1,1 +1,0 @@
-# staticoly.github.io
